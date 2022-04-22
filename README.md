@@ -1,2 +1,0 @@
-# VizsgaFelkeszito
-Tóth Virág
